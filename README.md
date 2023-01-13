@@ -8,5 +8,5 @@ if you wanna help you can contact me
 
 ## Authors
 
-- [Titouhi Omar](www.linkedin.com/in/omartitouhi)
+- [Titouhi Omar](https://www.linkedin.com/in/titouhi-omar-22ab83254/)
 
